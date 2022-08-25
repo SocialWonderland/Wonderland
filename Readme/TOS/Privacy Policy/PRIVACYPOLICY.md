@@ -1,1 +1,0 @@
-<center>WONDERLAND PRIVACY POLICY<center>
