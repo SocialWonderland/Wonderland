@@ -18,3 +18,11 @@ Thank you for reading this. - The Wonderland Team
 
 
 :copyright: Wonderland 2022
+
+
+
+
+By agreeing to the Privacy Policy and Terms of Service, you hereby forefit your right to sue the company unless major damages are done. These "Major Damages" would have to be something directly created by the company, not a user. As the Wonderland team we try our best not to harm our users.
+
+
+We will NEVER sell your information.
